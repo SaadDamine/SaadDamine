@@ -2,7 +2,7 @@
 
 ### Hi there 👋, my name is damine mohamed 
 #### I am I am a Software Engineer 
-![I am I am a Software Engineer ](https://arturssmirnovs.github.io/github-profile-readme-generator/images/banner.png)
+![I am I am a Software Engineer ](https://www.designnews.com/sites/designnews.com/files/Design%20News/industry-3087393__480.jpg)
 
 I enjoy being challenged and engaging with projects that require me to work outside my comfort and knowledge set, as continuing to learn new languages and development techniques are important to me and the success of your organization.
 
